@@ -5,7 +5,7 @@
 - 👔 I work for a blockchain company called [ChainX](https://chainx.org/)
 - 🛠️ Position: Front-end development 
 - ⚡ JavaScript
-- 🖋 Writer at [sspai](https://sspai.com/u/aw0luepf/posts)
+- 🥰 finance / photo / movie / philosophy / Sociology
 - 🏃 Sailing / Kayak / Scuba Diving / Windsurfing / Table Tennis / Cycling
 - 🥋 Boxing / Tai Chi
 - ♟ Chinese Chess / Chess 
