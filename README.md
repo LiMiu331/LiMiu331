@@ -8,5 +8,5 @@
 - 🥰 finance / photo / movie / philosophy / Sociology
 - 🏡 come from China GanSu BaiYin
 
-##通往大结局的路啊，正踏平所有的祖屋和田野
+## 通往大结局的路啊，正踏平所有的祖屋和田野
 ![avatar](http://wx3.sinaimg.cn/large/006BhQohly1gk41qventwj30m80cigly.jpg)
