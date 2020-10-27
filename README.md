@@ -6,6 +6,4 @@
 - 🛠️ Position: Front-end development 
 - ⚡ JavaScript
 - 🥰 finance / photo / movie / philosophy / Sociology
-- 🏃 Sailing / Kayak / Scuba Diving / Windsurfing / Table Tennis / Cycling
-- 🥋 Boxing / Tai Chi
-- ♟ Chinese Chess / Chess 
+- 🏡 come from China GanSu BaiYin
