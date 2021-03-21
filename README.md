@@ -5,5 +5,3 @@
 - 👔 I work for a blockchain company called [ChainX](https://chainx.org/)
 - 🛠️ Position: Front-end development 
 - ⚡ JavaScript / Chinese / biese 
-- 🥰 finance / photo / movie / philosophy / Sociology
-- 🏡 come from China GanSu BaiYin
